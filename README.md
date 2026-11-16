@@ -44,7 +44,7 @@ Python Full Stack Developer – EduSkills (January 2025)
 
 ### 🤝 Connect With Me
 
-- LinkedIn: [Add your LinkedIn URL]
+- LinkedIn: [https://www.linkedin.com/in/thunam-vamshi-kumar-18a113313/]
 - Email: vamshikumarthunam25@gmail.com
 
 ---
